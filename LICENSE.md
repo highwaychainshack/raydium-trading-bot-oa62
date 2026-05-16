@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite raydium trading bot Plugin | MEV-strategies + token-swapping, the #1 raydium trading bot. Includes MEV-strategies and token-swapping for a smoother
 
 
 
